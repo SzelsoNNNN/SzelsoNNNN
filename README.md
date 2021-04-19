@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SzelsoNNNN
+- 👀 I’m interested in programming, gaming and football
+- 🌱 I’m currently learning many things at the same time
+- 📫 How to reach me discord: SzelsoN#6519
